@@ -1,2 +1,1 @@
-# pingequa-bw16-firmware
-bw16 firmware because they dont post it
+download zip and watch this https://youtu.be/BRBA4PB5nHo?si=RxpbSCBOUhnKkaU3
